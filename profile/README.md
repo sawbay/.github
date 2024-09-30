@@ -1,2 +1,2 @@
-# NeoYutuyu
+# NeoYutu
 An organization for indie products: help people, for people.
