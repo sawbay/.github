@@ -1,2 +1,2 @@
 # [Botocean](https://botocean.network)
-A network for indie products: help people, for people.
+OceanX Solutions: where Ocean meets solutions for people's problems.
