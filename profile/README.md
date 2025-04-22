@@ -1,3 +1,3 @@
-# [OceanX](https://botocean.network)
+# [Let's Argh](https://botocean.network)
 
-OceanX Solutions: where Ocean meets solutions for people's problems.
+Let's Argh addresses your argh! problems with argh! our solutions.
